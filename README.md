@@ -1,2 +1,2 @@
-This is a reposityory for dev guilds please allow me
-This repository dadh tomorrow
+This is a repository for dev guilds. Please grant me access.\n
+This repository will be deleted tomorrow.
